@@ -1,4 +1,4 @@
-# Hello, I am Nalini
+# Hello, I am Nalini Hatti
 
 **College or field:** YOUR COLLEGE OR FIELD
 
